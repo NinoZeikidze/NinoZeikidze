@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NinoZeikidze
-- 👀 I’m interested in 
+- 👀 I’m interested in Marketing
 - 🌱 I’m currently learning SEO and Digital Marketing
 - 💞️ I’m looking to collaborate on google
 - 📫 How to reach me:  ninozeik@gmail.com
